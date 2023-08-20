@@ -1,1 +1,2 @@
-![portada](https://github.com/BenjaminMedina95/propuesta/assets/54634043/729a1ff8-e49a-49d9-a560-eeea37acc0f1)
+
+![image](https://github.com/BenjaminMedina95/propuesta/assets/54634043/868b0e5e-dd8d-4619-80af-a1471cf022d4)
